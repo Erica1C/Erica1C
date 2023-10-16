@@ -5,5 +5,9 @@
 
  
   
-- Erica
-- Eu gosto de: Música, livros, dança, 
+- Ola me chamo Erica💜
+- No meu tempo livre gosto de ler,ouvir musica, pintar e assitir series e filmes
+- Gosto de passar tempo com os meus amigos
+- Minha materia preferida e quimica
+- inst. https_eri0
+- meu animal preferido e o furao
